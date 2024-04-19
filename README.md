@@ -1,1 +1,1 @@
-# layout_lending__Frankfurter-Allgemeine
+Lending Frankfurter-Allgemeine робився на замовлення був сворений самостійно приблизно за пів-дня.
